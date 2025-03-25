@@ -1,1 +1,2 @@
-"Team lead: Patricia Mboma Kashweka"
+"Team Lead: Patricia Mboma Kashweka"
+
