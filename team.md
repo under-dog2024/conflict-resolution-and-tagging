@@ -1,1 +1,1 @@
-Team lead: "Ntuli Chimangila"  "Team lead: Patricia Mboma Kashweka"
+Team lead: "Ntuli Chimangila" & "Patricia Mboma Kashweka"
