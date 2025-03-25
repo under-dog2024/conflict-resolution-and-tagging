@@ -1,1 +1,1 @@
-our mission is to finish this assignment
+my mission is to finish this assignment
